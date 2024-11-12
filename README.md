@@ -1,2 +1,2 @@
 # Navigazione
-Centro di raccolta materiale di studio per la Navigazione Lagunare
+Centro di raccolta materiale di studio per la navigazione lagunare
